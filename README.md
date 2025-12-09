@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kunal-1610&label=Profile%20views&color=0e75b6&style=flat" alt="kunal-1610" /> </p>
 
-- 💬 Ask me about **JAVA,SPRINGBOOT,PYTHON**
+- 💬 Ask me about **JAVA,MERN,PYTHON**
 
 - 📫 How to reach me **kartirakunal16@gmail.com**
 
