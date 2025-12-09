@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kartirakunal16@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13rXrnjWHpvNZojky5cXlGUhhhfvYVKiV/view?usp=sharing](https://drive.google.com/file/d/13rXrnjWHpvNZojky5cXlGUhhhfvYVKiV/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/13rXrnjWHpvNZojky5cXlGUhhhfvYVKiV/view?usp=sharing](https://drive.google.com/file/d/13rXrnjWHpvNZojky5cXlGUhhhfvYVKiV/view?usp=sharing)](https://drive.google.com/file/d/1CKwZrw5YsNm_6gVrtZsa-UE_zIbG6yxi/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
